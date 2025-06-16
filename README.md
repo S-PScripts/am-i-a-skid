@@ -1,2 +1,2 @@
 # am-i-a-skid
-Yes.
+Yesn't.
